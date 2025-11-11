@@ -39,6 +39,7 @@ With over **3 years of experience** in **data analytics, product operations, and
 ### 💬 Let’s Connect  
 📫 **Email:** [restu.maulanaa@gmail.com](mailto:restu.maulanaa@gmail.com)  
 💼 **LinkedIn:** [linkedin.com/in/restu-maulana-48a83b217](https://www.linkedin.com/in/restu-maulana-48a83b217/)  
+📈 **Tableau Public** [public.tableau.com/app/profile/restu.maulana4640/vizzes](https://public.tableau.com/app/profile/restu.maulana4640/vizzes)
 
 ---
 
